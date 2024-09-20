@@ -4,8 +4,7 @@
 - 💞️ I’m looking to collaborate on: Topics related to the areas of interest listed above. 
 - 📫 How to reach me:
 
-tonystark2008em@gmail.com (personal)
-
+david.j.mlynski@gmail.com (personal)
 dmlynski@ucsc.edu (school)
 
 
